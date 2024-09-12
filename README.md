@@ -1,3 +1,4 @@
+[![MasterHead](https://github.com/gleegazer16/gleegazer16/blob/main/banner.gif)
 <h1 align="center">Hi 👋, I'm Tarndeep Singh</h1>
 <h3 align="center">A passionate final year Computer Science student.</h3>
 
