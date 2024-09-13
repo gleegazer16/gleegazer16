@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **tarndeepmalhi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VxvyHC8YX65Px_60gvU_GOtaN6RIsVbh/view?usp=drive_link](https://drive.google.com/file/d/1VxvyHC8YX65Px_60gvU_GOtaN6RIsVbh/view?usp=drive_link)
+- 📄 Know about my experiences [https://tinyurl.com/3u3hactf](https://drive.google.com/file/d/1VxvyHC8YX65Px_60gvU_GOtaN6RIsVbh/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
